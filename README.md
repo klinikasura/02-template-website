@@ -1,3 +1,2 @@
-Assalamualaikum Wr. Wb
-
-Desain Hamba Alloh
+DESAIN HAMBA ALLOH
+APLIKASI VERSI 6.0
